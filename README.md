@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# my profile 
+
+ ·  [linkedin](https://www.linkedin.com/in/nancy-hm/)
+
+
